@@ -19,4 +19,14 @@ In secure attachment individuals, by default found in the Ventral Vagal state, w
 
 Insecure Attachment individuals will by default trend towards pacifying authority figures by displaying behavior we hope they find favorable (fawn response).
 
-Avoidant Attachment individuals may avoid romantic enounters altogether, or appear to their partner as cold \ distant or non-responsive.
+Avoidant Attachment individuals may avoid romantic encounters altogether, or appear to their partner as cold \ distant or non-responsive.
+
+## Body Language and Sexual Consent must be Interpreted in Clusters
+
+Considering the subject of sexual consent vs polyvagal theory, stress responses and attachment theory it must be understood as a subset of body language, and Joe Navarro’s cluster-based methodology (The Dictionary of Body Language) provides the exact structural framework for navigating this intersection. 
+
+In a high-stakes interpersonal context like sexual consent, where a partner might exhibit a momentary freeze, avert their gaze, or offer a stiff smile, isolating any one of these actions could dangerously mislead an observer into misreading fear or discomfort as agreement. Instead, Navarro insists on reading behaviors in clusters—for example, a person who touches their neck while simultaneously shifting their weight away and hiding their thumbs—to confirm a genuine state of stress or discomfort. 
+
+Furthermore, he emphasizes establishing a baseline, which is vital considering that attachment histories vary widely; a securely attached individual's baseline of relaxed eye contact differs profoundly from an anxiously attached person's baseline of nervous fidgeting. 
+
+Individual "pacifying" behaviors are notoriously misleading on their own, but when they coalesce into reliable clusters, they offer the most robust, non-verbal evidence of a stress response—distinguishing authentic, enthusiastic consent from a fear-driven or trauma-triggered submission that the body reveals long before words do.
