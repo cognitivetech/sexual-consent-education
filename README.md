@@ -4,6 +4,12 @@
 
 **Editors Note:** I am currently focused on defining sexual consent in the hetero-normative context as requiring the most attention. Ultimately, the issue is gender neutral. The ultimate intent is to support all parties towards a consent conscious mindset.
 
+## Contents
+- [Introduction](#introduction)
+- [Purpose](#purpose)
+- [Compassionate Communication: Needs Based Conflict Resolution](#compassionate-communication-needs-based-conflict-resolution)
+- [Supporting consent-conscious Communication](#supporting-consent-conscious-communication)
+
 ## Introduction
 
 In regards to sexual etiquette, For most of recorded history, humanity has been taught only, that "no means no," and that rape is forced sexual intercourse. 
